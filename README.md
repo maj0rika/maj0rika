@@ -7,8 +7,6 @@
 
 이메일: neu666632@gmail.com
 
-이력서: [이력서 링크](https://wide-muenster-b98.notion.site/maj0rika-4edddefc084e4ac4bbf9b99b62e54bb5?pvs=4)
-
 포트폴리오: [포트폴리오 링크](https://maj0rika.com)
 
 # Usa?ble
