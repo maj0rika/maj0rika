@@ -5,9 +5,9 @@
 
 ### Connect&Hire Info
 
-이메일: neu666632@gmail.com
+이메일: neu5563@naver.com
 
-포트폴리오: [포트폴리오 링크](https://maj0rika.com)
+포트폴리오: [포트폴리오 링크](https://household-account-book-tawny.vercel.app/login)
 
 # Usa?ble
 
